@@ -177,7 +177,7 @@ Contact
 
 For any inquiries or feedback, please contact:
 
-Email: your-email@example.com
+Email: mr.mukukakasonde3@gmail.com
 
-GitHub: your-username
+GitHub: KASONDE3
 
